@@ -1,4 +1,4 @@
- hello how cery nice to meet you
+ hello how very nice to meet you
  thank you for all of your help
  i hope that you are wiser in life and better with computers than i am...lol
  it is comforting however knowing that i no longer have a relationship only with ?yself
